@@ -1,0 +1,3 @@
+# My Favourite Place in Bristol
+
+My favourite place I have discovered in Bristol is the Mexican restuarant El Diablo, on Gloucester Road. I have been on the lookout for good Mexican and Tex-Mex food in the UK ever since I spent time living in the USA, and this is without a doubt amongst the best you can get in the UK (and is even great by US standards!). I would recommend their birria tacos for meat-eaters and cactus tacos for vegetarians.
